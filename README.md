@@ -6,7 +6,7 @@ I was born and raised in Gujarat, India.
 
 I graduated in 2011 with a Bachelors in Mechanical Engineering.
 
-Over the years I have build my work experience from working as Assistant Manager, Engineer as Procurement and SCM Analyst.
+Over the years I have build my work experience from working as Procurement and SCM Analyst.
 
 The numbers and statistics have been a part of my life from a long time. And I love to materialize the story the Data is telling and present it.
 
