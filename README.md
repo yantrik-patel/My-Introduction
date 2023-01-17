@@ -1,6 +1,6 @@
 # My-Introduction
 This is the introduction about myself.  
-I am actively looking for opportunities in Data Analyst or ML Engineer roles.
+I am actively looking for opportunities in Data Analyst, Business Intelligence Analyst or ML Engineer roles.
 
 I was born and raised in Gujarat, India.
 
